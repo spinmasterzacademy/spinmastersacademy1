@@ -14,6 +14,6 @@ At SpinMasters Table Tennis Academy, we believe in creating a supportive and mot
 - Tournament Preparations
 
 ## Contact Us
-To join SpinMasters Table Tennis Academy and take your game to the next level, please contact Coach Kuda Mhurure at [contact@spinmasters.com](mailto:contact@spinmasters.com) or visit our website at [www.spinmasters.com](https://www.spinmasters.com) for more information.
+To join SpinMasters Table Tennis Academy and take your game to the next level, please contact Coach Kuda Mhurure at [kudacoach@gmail.com](mailto:contact@spinmasterzacademy.github.io) or visit our website at [www.spinmasters.com](https://spinmasterzacademy.github.io/spinmastersacademy1/) for more information.
 
 Come experience the thrill of table tennis and elevate your game with SpinMasters Table Tennis Academy in Pretoria, South Africa. Let's spin to win together!
